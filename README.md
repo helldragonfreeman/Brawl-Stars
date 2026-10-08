@@ -221,4 +221,4 @@ Brawl Stars is available as a full free version, which includes all features and
 Don't wait! Download Brawl Stars free today and join millions of players in epic battles!
 
 ---
-**Last updated:** 2026-10-07 20:20:38 UTC
+**Last updated:** 2026-10-08 00:36:43 UTC
